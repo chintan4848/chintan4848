@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chintan4848
-- 👀 I’m interested in learning some intresting in it filled
+- 👀 I’m interested in learning some intresting in IT filled
 - 🌱 I’m currently pursuing bca in charusat college changa india
 
 
