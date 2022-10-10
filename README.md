@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @chintan4848
 - 👀 I’m interested in learning some intresting in IT filled
-- 🌱 I’m currently pursuing bca in charusat college changa india
+- 🌱 I’m currently pursuing mca in charusat university, changa india.
+-I have just completed my Bachelor in BCA also from charusat university,changa india.
 
 
 <!---
